@@ -1,0 +1,4 @@
+- Hi, I'm GaviHawk, aka. Frank.
+- How find me? try use solo.to/2frank
+- I Don't know NOTHING about coding/system devolper, but i like it. (you know the end)
+- From Brasil wanting the world.
