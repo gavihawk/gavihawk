@@ -1,5 +1,5 @@
 - Hi, I'm GaviHawk, aka. Frank.
 - How find me? you ca'nt
-- I Don't know NOTHING about coding/system devolper, but i like it. (you know the end)
+- Owner and CEO @batalhadoouteiro and Tropa do Mete Rindo
 - From Brasil, hunting the top of world.
 - Discord.gg/tkf
